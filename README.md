@@ -1,1 +1,1 @@
-# pixelactivist.life
+# pixelactivist portfolio
